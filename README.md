@@ -2,8 +2,8 @@
 - 👀 I’m interested in the read
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 
-- 😄 Pronouns: ...
+- 📫 How to reach me ，Contact me via my email.
+- 😄 Pronouns: 
 - ⚡ Fun fact: ...
 
 <!---
